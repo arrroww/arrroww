@@ -6,7 +6,9 @@ if i know you, no i dont
 
  >arrow#3418
 
-♡ 
+im not gonna use this lmao 
+
+nvm I am
 
 
 
